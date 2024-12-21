@@ -1,4 +1,4 @@
-- 👋 Hi, I’m sisay-djn
+- 👋 Hi, I’m sisay
 - 👀 I’m interested in learning more about website development 
 - 🌱 I’m currently learning computer engineering 
 - 💞️ I’m looking to collaborate on full stack developer 
