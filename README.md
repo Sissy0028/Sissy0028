@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning computer engineering 
 - 💞️ I’m looking to collaborate on full stack developer 
 - 📫 How to reach me email:sisaydejenudbu@gmail.com 
-telegram:@Nusisss
+telegram:t.me/Nusisss
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
