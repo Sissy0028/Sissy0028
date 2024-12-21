@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning more about website development 
 - 🌱 I’m currently learning computer engineering 
 - 💞️ I’m looking to collaborate on full stack developer 
-- 📫 How to reach me sisaydejenudbu@gmail.com 
+- 📫 How to reach me email:sisaydejenudbu@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
