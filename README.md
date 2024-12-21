@@ -5,7 +5,7 @@
 - 📫 How to reach me email:sisaydejenudbu@gmail.com 
 telegram## How to Reach Me
 
-- **Telegram**: @Nusisss](https://t.me/@@Nusisss)
+- **Telegram**: @Nusisss](https://t.me/@Nusisss)
 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
